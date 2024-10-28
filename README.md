@@ -4,4 +4,4 @@
 
 *i have __autism__ and __avpd__. please be patient, i might not respond immediately*
 
-(best seen on light mode)
+*(best seen on light mode)*

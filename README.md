@@ -1,3 +1,5 @@
+![](https://i.postimg.cc/5y9ttBSb/Untitled730-20240731200633.png)
+ 
  *' i hope you rot ! ' /q* 
 
 *do __not__ copy my skins.*
@@ -7,3 +9,4 @@
 *i have __autism__ and __avpd__. please be patient, i might not respond immediately*
 
 *(best seen on light mode)*
+![](https://i.postimg.cc/MTmTxPR9/IMG-2824.png)

@@ -1,4 +1,6 @@
- *' i hope you rot ! '* 
+ *' i hope you rot ! ' /q* 
+
+*do __not__ copy my skins.*
 
  ![](https://i.pinimg.com/736x/9a/c5/70/9ac5700417847f3aad2a700ef6d79b47.jpg)
 

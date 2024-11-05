@@ -4,7 +4,7 @@
  
 `` h3rd u guyz liek mudk1pz :3  /q ``
 
-*do __not__ copy my skins.*
+*do __not__ copy my skins. plz.*
 
  ![](https://media.discordapp.net/attachments/1073066195512721408/1303227973989699594/Untitled461_20241105001638.png?ex=672afd21&is=6729aba1&hm=13b0b61b1ada5adc03ca72347cd9e9adff4d0859423092578c9686e5d318d246&=&format=webp&quality=lossless&width=590&height=421)
 

@@ -1,3 +1,5 @@
+## SPRUNKI FANDOM IWEC DUDE. MAJORITY OF U GUYSS ARE WEIRDD IM sORRY
+
 HAII im infectedd otherwise known as the CEO OF SKATERLIGHT!!!!! I LOVE SKATEERLIGHTT!
 i'm autistic and i struggle with understanding things, further explanation (if wanted) would be nice! 
 

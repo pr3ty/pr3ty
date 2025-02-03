@@ -1,11 +1,7 @@
-## SPRUNKI FANDOM IWEC DUDE. MAJORITY OF U GUYSS ARE WEIRDOS IM sORRY
-
-HAII im infectedd otherwise known as the CEO OF SKATERLIGHT!!!!! I LOVE SKATEERLIGHTT!
-i'm autistic and i struggle with understanding things, further explanation (if wanted) would be nice! 
-
-c + h ALWAYS ALLOWED I LOVE YOU GUYS CUDDLE ME NOW NOW MPW
-
-also i pee a lot tgats just my thing bro 
 
 
-![](https://i.pinimg.com/736x/aa/48/86/aa4886f3201fbb7bbdf6bfad898df2c2.jpg)
+## Where are you looking? I'm over here, doughbrain!
+
+   #### c + h ALWAYS ALLOWED I LOVE YOU GUYS CUDDLE ME NOW NOW MPW /ooc
+
+   ![](https://static.wikia.nocookie.net/cookierunkingdom/images/6/6a/Candy_apple_illustration.png/revision/latest/scale-to-width-down/1000?cb=20250117144025)

@@ -1,11 +1,11 @@
- ![](https://imgur.com/a/KG0gP26)
+ ![](https://files.catbox.moe/nhytc3.png)
 
 
 ## " All  I   wanted   was   someone   ,   somewhere   to   rest   this   broken   doll   . "
 
    #### C + H   is   always   allowed,   ily   all   <3
 
-   ![](https://imgur.com/a/xaDyYna)
+   ![](https://files.catbox.moe/h5adgl.png)
 
 
- ![](https://imgur.com/a/KG0gP26)
+ ![](https://files.catbox.moe/nhytc3.png)

@@ -7,6 +7,7 @@
 
   
   #### C + H⠀⠀is⠀⠀always⠀⠀allowed⠀⠀,⠀⠀ily⠀⠀all⠀⠀⠀❤︎
+  ![fans](https://komarev.com/ghpvc/?username=pr3ty&color=63544b&style=plastic-square&base=67) 
 
    ![](https://files.catbox.moe/zrb2ye.png)
 

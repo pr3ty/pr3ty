@@ -1,15 +1,16 @@
 <div align="center">
  
- ![](https://files.catbox.moe/nhytc3.png)
+ ![](https://files.catbox.moe/4tbk3c.png)
 
 
-## "⠀All⠀⠀I⠀⠀wanted⠀⠀was⠀⠀someone⠀⠀,⠀⠀somewhere⠀⠀to⠀⠀rest⠀⠀this⠀⠀broken⠀⠀doll⠀⠀I⠀⠀am⠀⠀.⠀"
+- ## “⠀⠀I ⠀CAN'T ⠀HEAR ⠀THE ⠀MESSAGES, ⠀THEY ⠀JUST ⠀DON'T ⠀LET ⠀ME⠀⠀!⠀”
 
   
-  #### C + H⠀⠀is⠀⠀always⠀⠀allowed⠀⠀,⠀⠀ily⠀⠀all⠀⠀⠀🤍
-  ![:3](https://komarev.com/ghpvc/?username=pr3ty&color=63544b&style=plastic-square&base=67) 
-
-   ![](https://files.catbox.moe/zrb2ye.png)
+  - #### C + H⠀⠀is⠀⠀always⠀⠀allowed⠀⠀,⠀⠀ily⠀⠀all⠀⠀⠀!
+  - - [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r57cahf7ai4mzlx2mlnxi7wx6u&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)
 
 
- ![](https://files.catbox.moe/nhytc3.png)
+   ![](https://files.catbox.moe/dyd2nz.png)
+
+
+ ![](https://files.catbox.moe/urj3w4.png)
